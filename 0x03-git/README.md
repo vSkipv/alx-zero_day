@@ -1,1 +1,1 @@
-*i
+Master of dezsta
